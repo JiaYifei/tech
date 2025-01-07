@@ -3,4 +3,4 @@
 以后自己的各类文章都会收纳在这个repository
 感兴趣的同学欢迎star,个人的仓促完成文章难免有问题请联系  
 
-VX: AriesAprilJ(注明来意)
+VX: JomoJa(注明来意)
